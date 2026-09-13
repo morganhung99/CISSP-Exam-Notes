@@ -138,7 +138,7 @@ Since you cannot know whether you'll finish at question 100 or question 150, **t
 >
 > I took about two hours — went in just before 2pm, walked out around 3:40pm. Looking back at the mix: roughly 20% were pure instinct, 30% I could reason out from knowledge, another 20% I answered from work experience, and the remaining 30% I wasn't confident about at all.
 >
-> I passed question 100 and it didn't stop. Let's just say a stampede of colourful language went through my head, and I kept checking the counter. By question 110 it was getting annoying, so I gave up looking and focused on answering. **Then at question 115 it just ended.** Abruptly. And honestly I felt a little deflated — *that's it?*
+> I passed question 100 and it didn't stop. Let's just say a stampede of colourful language went through my head, and I kept checking the counter. By question 110 it was getting annoying, so I gave up looking and focused on answering. **Then at question 115～120 it just ended.** Abruptly. And honestly I felt a little deflated — *that's it?*
 
 ### 3. When All Four Look Wrong (or All Four Look Right)
 
